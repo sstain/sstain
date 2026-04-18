@@ -1,14 +1,9 @@
-<h1 align="center"> 
-$\color{yellow}{\textsf{❀ craig ❀}}$</h1> 
-<p align="center">
-neurodivergent<br>
-<code> <img src="lesbian.jpg" width="25px" height="22px"/> <img src="butch.jpg"/>  ask for prns</code><br>
-  <br>
+<pre> <h1 align="center"><img src="https://media.tenor.com/wez5Uu1KN0AAAAAe/morgan-freeman-true.png" width="270px" height="30px"/> CRAIG <img src="https://media.tenor.com/wez5Uu1KN0AAAAAe/morgan-freeman-true.png" width="270px" height="30px"/><br>
 <img src="thethreegordons.png" width="700px"/> <br>
-<sub>c+h enc     feel free to int/talk whenever :)</sub></p>
+<sub>ask for pronouns :) </sub> </pre>
 
 <details align="center">
-  <summary>about me!</summary>
+  <summary>BYI</summary>
 
   <p align="center"> 
 <sub>wip <br></sub>
